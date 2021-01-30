@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+大家好，很高兴认识大家
+我叫余秀璇，来自福建，兴趣爱好是宅家
+我没有最喜欢的话
+谢谢观看
